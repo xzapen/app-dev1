@@ -4,11 +4,11 @@ My first repository
 # My Favorite Movie: *Inception*
 
 ## Why I Love It
-- Intriguing plot  
-- Amazing visuals  
-- Thought-provoking themes  
+- Waifu
+- Noice 
+- Ganda much  
 
 ## Favorite Characters
-- Dom Cobb  
-- Ariadne  
-- Arthur  
+- Kamisato Ayaka  
+- Raiden Shogun  
+- My Girlfriend  
